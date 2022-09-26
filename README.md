@@ -1,0 +1,2 @@
+# FTC
+FUTURE COIN
